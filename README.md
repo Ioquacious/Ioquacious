@@ -1,6 +1,6 @@
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/DREED" align="left" style="width: 320px;">
 <p align="center">
-<h3 align="center">Seth or Reed<a href="https://rentry.co/una">+</a> ✦ He/Him ✦ 22yrs, July 23rd</h3>
+<h3 align="center">Seth or Reed<a href="https://rentry.co/una">+</a>  He/Him  22yrs, July 23rd</h3>
 <p align="center"><a href="https://rentry.co/mrfantastic" rel="nofollow">rentry.co/mrfantastic&ZeroWidthSpace;</a></p>
 
 <p><b>whisper to interact,</b> I am usually off-tab. I am typically doing college work.<br>

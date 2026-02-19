@@ -8,7 +8,7 @@
   
  
   I am mainly into Marvel and JJBA. Fantstic Four and Battle Tendency specfically. <br>
-I like DoomReedSue and CaeJoseQ. With that being said, do not force ships onto me.<br>
+I will pretty much speak to anyone, but I would prefer minors limit interaction.<br>
 DNI if you involve yourself in drama frequently and that's all you care about.
 </p>
   <br>

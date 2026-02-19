@@ -3,8 +3,9 @@
 <h3 align="center">Seth or Reed<a href="https://rentry.co/una">+</a> ✦ He/Him ✦ 22yrs, July 23rd</h3>
 <p align="center"><a href="https://rentry.co/mrfantastic" rel="nofollow">rentry.co/mrfantastic&ZeroWidthSpace;</a></p>
 
-<p><b>whisper to interact,</b> I am usually off-tab. I am almost always sitting with <a href="https://github.com/metaIIic" rel="nofollow">@metaIIic&ZeroWidthSpace;</a>. 
-  I don't mind speaking to people, but if I don't reply, I am usually off-tab or I just don't wish to speak at that time.<br>
+<p><b>whisper to interact,</b> I am usually off-tab. I am almost always sitting with <a href="https://github.com/metaIIic" rel="nofollow">@metaIIic&ZeroWidthSpace;</a>. <br>
+  I kin Reed Richards, and self-ship with Sue Storm and Victor Vondoom.  <br>
+  I kinda don't like doubles, but I don't make it a huge deal. Just don't compete.<br>
   
  
   I am mainly into Marvel and JJBA. Fantstic Four and Battle Tendency specfically. <br>
